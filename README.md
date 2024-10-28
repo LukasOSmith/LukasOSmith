@@ -14,6 +14,4 @@
 
 ## PROGRAMMING:
 
-![](https://media.discordapp.net/attachments/1133182568343285880/1205140307612794960/2024-02-08_08-17.png?=&width=1436&height=298)
-
-![2024-02-06_09-58](https://github.com/LukasOSmith/LukasOSmith/assets/135868602/b513b4c9-a8b6-4faa-a526-036c5e4f528d) ![](https://media.discordapp.net/attachments/1133182568343285880/1197660784973598790/Screenshot_20240115_190633_Instagram.png?=&width=150&height=100) ![2024-02-02_19-52](https://github.com/LukasOSmith/LukasOSmith/assets/135868602/4391a960-0097-48f5-9bb3-852c496f19b2)
+![2024-02-06_09-58](https://github.com/LukasOSmith/LukasOSmith/assets/135868602/b513b4c9-a8b6-4faa-a526-036c5e4f528d) ![](https://media.discordapp.net/attachments/1133182568343285880/1197660784973598790/Screenshot_20240115_190633_Instagram.png?=&width=150&height=100) ![2024-02-02_19-52](https://github.com/LukasOSmith/LukasOSmith/assets/135868602/4391a960-0097-48f5-9bb3-852c496f19b2) ![2024-10-28_07-39](https://github.com/user-attachments/assets/5905e4db-bb60-416b-bd5e-d9d5c4fc8742)
