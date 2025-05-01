@@ -14,5 +14,4 @@ too many, check my [stars](https://github.com/LukasOSmith?tab=stars)
 
 ## PROGRAMMING:
 
-![2025-01-15_17-49](https://github.com/user-attachments/assets/bccb119d-f153-440e-95a5-b28a05199ef8)
-![2024-02-06_09-58](https://github.com/LukasOSmith/LukasOSmith/assets/135868602/b513b4c9-a8b6-4faa-a526-036c5e4f528d) ![2024-02-02_19-52](https://github.com/LukasOSmith/LukasOSmith/assets/135868602/4391a960-0097-48f5-9bb3-852c496f19b2) ![2024-10-28_07-39](https://github.com/user-attachments/assets/5905e4db-bb60-416b-bd5e-d9d5c4fc8742) 
+![2024-02-06_09-58](https://github.com/LukasOSmith/LukasOSmith/assets/135868602/b513b4c9-a8b6-4faa-a526-036c5e4f528d) ![2024-02-02_19-52](https://github.com/LukasOSmith/LukasOSmith/assets/135868602/4391a960-0097-48f5-9bb3-852c496f19b2) 
